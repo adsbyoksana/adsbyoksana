@@ -49,4 +49,6 @@
 
 ### 🤝 Let's connect
 
+[@adsbyoksana](https://github.com/adsbyoksana/)
+
 Let’s work together to make your marketing smarter, faster, and more fun 💡
